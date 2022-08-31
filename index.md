@@ -5,5 +5,5 @@
 - Everyone is so helpful and friendly.
 - The class starts at a reasonable time.
 
-I wull add more in the future, for sure!
+I will add more in the future, for sure!
 
